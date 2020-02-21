@@ -5,3 +5,4 @@
 - Brad Pitt
 - Leonardo DiCaprio
 - Caio Castro
+- Brad Copper
