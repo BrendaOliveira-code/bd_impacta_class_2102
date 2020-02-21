@@ -1,1 +1,6 @@
-# bd_impacta_class_2102
+Giovanna Antonelli
+Lady Gaga
+Angelina Jolie
+Brad Pitt
+Leonardo DiCaprio
+Caio Castro
