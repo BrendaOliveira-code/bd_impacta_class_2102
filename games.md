@@ -1,3 +1,4 @@
 - Call of Duty
 - Mortal Kombat
 - FIFA 2020
+- PES 2020
